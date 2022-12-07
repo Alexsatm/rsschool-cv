@@ -2,9 +2,9 @@
 
 ## Contacts 
 
--**Phone** +79617520349
+- **Phone** +79617520349
 
--**Email** dzamilovaalbina2@gmail.com
+- **Email** dzamilovaalbina2@gmail.com
 
 - **Telegram** [@AlexsaTM](https://t.me/AlexsaTM "my Telegram")
 
